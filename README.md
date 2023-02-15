@@ -1,1 +1,1 @@
-![639f251b3eccf94fbc448574_hardware vs plugins](https://user-images.githubusercontent.com/125443259/218976921-16a65bd1-a576-4f90-84e7-37dd1d9660eb.jpg)
+![Itachi's_farewell](https://user-images.githubusercontent.com/125443259/219038218-d213771e-60ac-4441-b8ae-cb5af063d1fc.png)
